@@ -21,6 +21,7 @@ Contacta conmigo en:
   www.linkedin.com/in/joaquin-alvarez-alonso-94a7a266
  
   https://public.tableau.com/app/profile/joaqu.n.lvarez.alonso
+
 Si quieres colaborar en algún proyecto o tienes alguna curiosidad. Dispuesto siempre a aprender y colaborar ya estoy deseando poder empezar mi camino en el mundo IT.
 
 Gracias por llegar hasta aquí! Un saludo!🤗
