@@ -15,9 +15,12 @@ Estoy abierto a entrar con contratos de formación ya que entiendo que aún teni
 
 🤷🏽‍♂️¿Quieres saber más?
 Contacta conmigo en:
-joaquin.92.lc@gmail.com
-www.linkedin.com/in/joaquin-alvarez-alonso-94a7a266
-https://public.tableau.com/app/profile/joaqu.n.lvarez.alonso
+
+  joaquin.92.lc@gmail.com
+  
+  www.linkedin.com/in/joaquin-alvarez-alonso-94a7a266
+ 
+  https://public.tableau.com/app/profile/joaqu.n.lvarez.alonso
 Si quieres colaborar en algún proyecto o tienes alguna curiosidad. Dispuesto siempre a aprender y colaborar ya estoy deseando poder empezar mi camino en el mundo IT.
 
 Gracias por llegar hasta aquí! Un saludo!🤗
